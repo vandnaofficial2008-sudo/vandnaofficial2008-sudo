@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi, I. am Vandna,  a crazy thinker by passion pursuing B.Tech(CSE).<br>I have always loved to solve critical questions and connect with new people.<br>Currently, I am exploring various field of study to know what I love and where I can work on.<br>It's my hobby to sit down with my thoughts and listen to songs, with some coffee.<br>I’m always up for collaborations, new ideas and good conversations. <br>If you’ve got a project or a question, reach out through vandna3.official2008@gmail.com.<br>Thanks for stopping by. Take a look around, and if something here sparks an idea, let’s talk.
+# ✨ About Me:
+Hi, I am Vandna,  a crazy thinker by passion pursuing B.Tech(CSE).<br>I have always loved to solve critical questions and connect with new people.<br>Currently, I am exploring various field of study to know what I love and where I can work on.<br>It's my hobby to sit down with my thoughts and listen to songs, with some coffee.<br>I’m always up for collaborations, new ideas and good conversations. <br>If you’ve got a project or a question, reach out through vandna3.official2008@gmail.com.<br>Thanks for stopping by. Take a look around, and if something here sparks an idea, let’s talk.
 
 
 ## 🌐 Socials:
